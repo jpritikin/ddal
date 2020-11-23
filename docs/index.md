@@ -49,8 +49,9 @@ out of the supply chain. People dying from drug use is a necessary
 evil; our paycheck depends on it.
 
 Of course we push the hardest of hard drugs because they are easy to
-transport (and most profitable). Back in the good old days of alcohol
-prohibition, did anybody smuggle low-alcohol beer? No, of course
+transport (and most profitable). Back in the good old days of [alcohol
+prohibition](https://en.wikipedia.org/wiki/Prohibition_in_the_United_States),
+did anybody smuggle low-alcohol beer? No, of course
 not. Whiskey was more
 favored. [Fentanyl](https://www.drugabuse.gov/drug-topics/fentanyl)
 and [Synthetic
@@ -71,15 +72,14 @@ this could cause some prisons to shut down, leading to unemployment.
 We hope to ally with Prisons Guards Against Drug Legalization (PGADL)
 to oppose drug legalization. Please reach out to us.
 
-In a scenario of blanket legalization, drug could increase. Currently,
-some people refrain from using because the substances are illegal,
-buyers fear law enforcement, or buyers doubt the quality of available
-product sold in the shadows by criminals. However, as drug dealers, we
-can't capitalize on the increase in usage because we're no longer the
-suppliers. Support your local drug dealer; help us avoid going out of
-business.
-
-In a scenario of blanket legalization, drug could decrease because tax
+In a scenario of blanket legalization,
+* Drug use could increase. Currently, some people refrain from using
+because the substances are illegal, buyers fear law enforcement, or
+buyers doubt the quality of available product sold in the shadows by
+criminals. However, as drug dealers, we can't capitalize on the
+increase in usage because we're no longer the suppliers. Support your
+local drug dealer; help us avoid going out of business.
+* Drug could decrease because tax
 collection from legal drug sales could be directed toward treatment
 and rehabilitation programs. This is really the worst possible
 outcome. Not only are we cut out of the cash flow as drug suppliers,
