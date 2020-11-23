@@ -75,13 +75,13 @@ We hope to ally with Prisons Guards Against Drug Legalization (PGADL)
 to oppose drug legalization. Please reach out to us.
 
 In a scenario of blanket legalization,
-* Drug use could increase. Currently, some people refrain from using
+* Drug use could **increase**. Currently, some people refrain from using
 because the substances are illegal, buyers fear law enforcement, or
 buyers doubt the quality of available product sold in the shadows by
 criminals. However, as drug dealers, we can't capitalize on the
 increase in usage because we're no longer the suppliers. Support your
 local drug dealer; help us avoid going out of business.
-* Drug use could decrease because tax
+* Drug use could **decrease** because tax
 collection from legal drug sales could be directed toward treatment
 and rehabilitation programs. This is really the worst possible
 outcome. Not only are we cut out of the cash flow as drug suppliers,
