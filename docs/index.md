@@ -11,8 +11,9 @@ a competition to be as violent and intimiating as possible. Murder is
 pretty commonplace, and all this violence encourages law enforcement
 to sink an impressive amount of resources into culling the weak. To be
 clear, police manage to damage our organizations occasionally, but
-this just clears the deadwood for fresh drug dealers to become new
-suppliers; demand is never affected. It's like the [circle of
+this just [clears the deadwood for fresh drug dealers to become new
+suppliers](https://lawenforcementactionpartnership.org/);
+demand is never affected. It's like the [circle of
 life](https://en.wikipedia.org/wiki/Circle_of_Life), and has inspired
 hundreds of hours of solid entertainment such as [Maria Full of Grace
 (2004)](https://en.wikipedia.org/wiki/Maria_Full_of_Grace), [Miami
