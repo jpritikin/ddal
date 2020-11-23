@@ -18,8 +18,10 @@ demand is never affected. It's like the [circle of
 life](https://en.wikipedia.org/wiki/Circle_of_Life), and has inspired
 hundreds of hours of solid entertainment such as [Miami
 Vice 1984-1989](https://en.wikipedia.org/wiki/Miami_Vice),
-[Maria Full of Grace (2004)](https://en.wikipedia.org/wiki/Maria_Full_of_Grace), and
-[Breaking Bad 2008-2013](https://en.wikipedia.org/wiki/Breaking_Bad).
+[Maria Full of Grace 2004](https://en.wikipedia.org/wiki/Maria_Full_of_Grace),
+[Breaking Bad 2008-2013](https://en.wikipedia.org/wiki/Breaking_Bad),
+[Elite Squad: The Enemy Within 2010](https://en.wikipedia.org/wiki/Elite_Squad:_The_Enemy_Within),
+and [American Made 2017](https://en.wikipedia.org/wiki/American_Made_(film)).
 Drug legalization could make drug supply boring, and is a serious
 threat to popular entertainment themes.
 
@@ -57,7 +59,7 @@ did anybody smuggle low-alcohol beer? No, of course
 not. Whiskey was favored.
 [Fentanyl](https://www.drugabuse.gov/drug-topics/fentanyl)
 and [Synthetic Cannabinoids](https://www.drugabuse.gov/publications/drugfacts/synthetic-cannabinoids-k2spice)
-are just our latest fine products. As drug dealers, we believe in easy
+are our latest fine products. As drug dealers, we believe in easy
 access to drugs, and that means easy to carry and conceal. Support
 your local drug dealer; avoid the social stigma of ostentatious
 drug display.
