@@ -1,5 +1,5 @@
 This is a parody site to make fun of the folly of the war against
-drugs. The modern drug was was started by [Harry
+drugs. The modern drug war was started by [Harry
 Anslinger](https://en.wikipedia.org/wiki/Harry_J._Anslinger) in the
 1930s.  This is the same *idealistic* man who eventually cooperated to
 [supply narcotics for Senator Joe
