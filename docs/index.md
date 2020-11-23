@@ -98,3 +98,5 @@ Drug Abuse Resistance Education program ([DARE](https://dare.org/)).
 Sources:
 
 [Hari, J. (2015). Chasing the scream: The first and last days of the war on drugs. Bloomsbury Publishing USA.](https://chasingthescream.com/)
+
+Got ideas for improvements? [Please contribute!](https://github.com/jpritikin/ddal/)
