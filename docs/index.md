@@ -4,9 +4,10 @@ Cannabis is fully legal in [15 states and some US
 territories](https://en.wikipedia.org/wiki/Legality_of_cannabis_by_U.S._jurisdiction).
 Worse, [Oregon Measure 110](https://ballotpedia.org/Oregon_Measure_110,_Drug_Decriminalization_and_Addiction_Treatment_Initiative_(2020)) decriminalized *all* controlled substance, presaging broad drug legalization.
 Decriminalization is bad enough, but legalization puts drug dealers out of business.
-Who can compete against government regulated, high quality, and inexpensive legal drugs?
+What criminal enterprise can compete against government regulated,
+ high quality, and inexpensive legal drugs?
 
-To fulfill the robust demand for illegal drugs, we drug dealers are in
+To cater to the robust demand for illegal drugs, we drug dealers are in
 a competition with each other to be as violent and intimiating as possible. Murder is
 pretty commonplace, and all this violence encourages law enforcement
 to sink an impressive amount of resources into culling the weak. To be
@@ -64,29 +65,29 @@ drug display.
 Even without full legalization, decriminalization takes the wind out
 of our sails (and sales). With decriminalization,
 risk inherent in drug dealing is reduced,
-reducing the risk premium and potential profits. Millions of
+reducing the risk premium and potential profits. Worse, millions of
 people currently incarcerated for nonviolent drug offenses would be
 released.  Given that the US has the world's [highest per-capita
 incarceration
 rate](https://en.wikipedia.org/wiki/Incarceration_in_the_United_States),
 this could cause some prisons to shut down, leading to unemployment
-of prison security professionals.
-We hope to ally with Prisons Guards Against Drug Legalization (PGADL)
-to oppose drug legalization. Please reach out to us.
+of [esteemed](https://en.wikipedia.org/wiki/Joe_Arpaio) prison security professionals.
+We hope to ally with Prisons Guards Against Drug Legalization (PGADL).
+Please reach out to us.
 
 In a scenario of blanket legalization,
 * Drug use could **increase**. Currently, some people refrain from using
 because the substances are illegal, buyers fear law enforcement, or
 buyers doubt the quality of available product sold in the shadows by
-criminals. However, as drug dealers, we can't capitalize on the
+criminals. However, as drug dealers, we can't capitalize on this possible
 increase in usage because we're no longer the suppliers. Support your
 local drug dealer; help us avoid going out of business.
 * Drug use could **decrease** because tax
 collection from legal drug sales could be directed toward treatment
 and rehabilitation programs. This is really the worst possible
 outcome. Not only are we cut out of the cash flow as drug suppliers,
-but demand for drugs is slowly whittled away. The devistating
-impact of this one-two punch would make it very difficult for us to
+but demand for drugs is slowly whittled away. The devastating
+impact of this one-two punch would make it difficult for us to
 reverse laws back to our advantage. This is an outcome that we are
 most keen to avoid.
 
