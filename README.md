@@ -5,7 +5,7 @@ Anslinger](https://en.wikipedia.org/wiki/Harry_J._Anslinger) in the
 [supply narcotics for Senator Joe
 McCarthy](http://druglibrary.org/schaffer/history/e1970/drugswashdc.htm),
 in effect becoming the nation's most hypocritical drug dealer. This
-site is dedicated to him.
+site is dedicated to Harry.
 
 In an effort to avoid taking credit or blame for [this parody
 site](https://jpritikin.github.io/ddal/), contributions are welcome.
