@@ -1,7 +1,9 @@
 # Drug Dealers Against Legalization
 
-Cannabis is fully legal in [15 states and some US
+Cannabis is fully legal in [18 states, Washington DC, and some U.S.
 territories](https://en.wikipedia.org/wiki/Legality_of_cannabis_by_U.S._jurisdiction).
+Moreover, 36 states and Washington DC have passed laws legalizing or
+decriminalizing medical marijuana.
 Worse, [Oregon Measure 110](https://ballotpedia.org/Oregon_Measure_110,_Drug_Decriminalization_and_Addiction_Treatment_Initiative_(2020)) decriminalized *all* controlled substance, presaging broad drug legalization.
 Decriminalization is bad enough, but legalization puts drug dealers out of business.
 What criminal enterprise can compete against government regulated,
